@@ -155,5 +155,10 @@ Setelah anda menegetahui Algoritma Dalam sebuah Program Maka Langkah Berikutnya 
 
 <img width="960" alt="Screenshot_24" src="https://user-images.githubusercontent.com/115516635/199908911-934a8e03-ff16-402a-b580-35142fe504d7.png">
 
+# Sekian Dan TerimaKasih
+![images](https://user-images.githubusercontent.com/115516635/199910232-f372f060-a2bf-4567-9b08-deb17f6347bc.jpg)
 
-# sekian dan trimakasih
+
+
+
+
